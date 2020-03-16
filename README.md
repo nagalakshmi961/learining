@@ -1,1 +1,2 @@
 # learining
+bliosgjkzcmbpotbjmcf,.bmtpo
